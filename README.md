@@ -17,4 +17,5 @@
 
 
 Задание 2:
+(обновлено)
 https://drive.google.com/file/d/1eEC1_aD5PcDzx9odyL8ZukD6j69E_sFW/view?usp=sharing
